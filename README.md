@@ -1,2 +1,2 @@
 # Officiallywrics.github.io
-An artist
+he sings spiritually with how life moves and cycles not an ordinary artist 
